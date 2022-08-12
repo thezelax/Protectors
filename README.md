@@ -1,2 +1,2 @@
 # Protectors
-this section is moderated by Zelax, Nuster and Black.
+this section is moderated by Zelax and Black.
